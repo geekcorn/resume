@@ -4,7 +4,7 @@
 
 ## 联系方式
 E-mail1: geekcorn@gmail.com  
-E-mail2: nan7huang@yeah.net
+E-mail2: nan7huang@yeah.net  
 微信: key1088  
 
 ## 教育程度
